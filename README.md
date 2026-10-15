@@ -10,4 +10,4 @@
 - Adobe After Effects
 
 ## 영상 링크
-Google Drive 영상 주소를 여기에 입력하세요.
+[Google Drive 영상 주소를 여기에 입력하세요.](https://drive.google.com/drive/folders/1uBto_PMyogJDmD09VOP19ZufbX4wCnhH?hl=ko)
