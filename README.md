@@ -10,4 +10,4 @@
 - Adobe After Effects
 
 ## 영상 링크
-[Google Drive 영상 주소를 여기에 입력하세요.](https://drive.google.com/drive/folders/1uBto_PMyogJDmD09VOP19ZufbX4wCnhH?hl=ko)
+[AI 광고 영상 보기]([실제 Google Drive 주소](https://drive.google.com/drive/folders/10Uh9VjorgbA2z4Lu7f8G267t9t1VNm3O?hl=ko))
