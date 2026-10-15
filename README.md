@@ -12,9 +12,7 @@
 ## 영상 링크
 
 
-Uploading 한숨쉬는_아들_20261008145938.mp4…
-
-https://github.com/user-attachments/assets/cd4fb3d6-182b-4b00-892f-dbdbdf4d4aeb
+C:\Users\user\Desktop\새 폴더 (2)
 
 
 
